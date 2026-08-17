@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-VICB710429MNLCVL01
+VICB710429MNLCVL01
